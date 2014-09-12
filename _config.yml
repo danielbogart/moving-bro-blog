@@ -4,8 +4,8 @@ email: daniel@movingbro.com
 description: > # this means to ignore newlines until "baseurl:"
   The Moving Bro Blog serves you up the dopest moving tips, sickest decorative steez,
   and ideas for saving money on your move.  
-baseurl: "" # the subpath of your site, e.g. /blog/
-url: "http://yourdomain.com" # the base hostname & protocol for your site
+baseurl: "http://blog.movingbro.com/"
+url: "http://blog.movingbro.com/" # the base hostname & protocol for your site
 twitter_username: daniel_bogart
 github_username:  danielbogart
 
