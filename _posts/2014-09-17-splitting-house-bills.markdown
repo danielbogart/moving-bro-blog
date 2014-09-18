@@ -5,7 +5,7 @@ date:   2014-09-17 9:00
 categories: moving-checklist bill-sharing
 ---
 
-Just about everyone can think of an instance they were at a restaurant with a group of friends and it came time to split the bill. Fighting ensued that could have rivaled WWII trench warefare in intensity. There were the inevitable friends who "only ate an appetizer" or claimed not to have had any of the beer. Tempers rose. Tears ensued. Friendships were lost. Can you imagine having to go through this pain and heartbreak at the end of every month when it's time to split the utility bills and house expenses?
+Just about everyone can think of an instance they were at a restaurant with a group of friends and it came time to split the bill. Fighting ensued that could have rivaled WWII trench warefare in intensity. There were the inevitable friends who "only ate an appetizer" or claimed not to have had any of the beer. Tempers rose. Tears ensued. Friendships were lost. Can you imagine having to endure this pain and heartbreak at the end of every month when it's time to split the utility bills and house expenses?
 
 Then there are the minor things that you spotted your housemates on, like picking up that 30 rack of Coors Light, or covering your friend at that Mexican spot that only takes cash. The costs add up and can lead to some unnecessary tension in the house. Luckily with the continuing advancement of tools available across the information super-highway, we have a few stellar options to alleviate the stress of bill sharing.
 
