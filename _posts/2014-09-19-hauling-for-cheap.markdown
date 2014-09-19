@@ -5,7 +5,7 @@ date:   2014-09-19 9:00
 categories: moving-checklist hauling-stuff
 ---
 
-So now you've got the majority of your stuff jammed into your new pad. Maybe you rented a monster uHaul truck, knocked over a fence post or two backing out of the driveway, but otherwise managed to make the perilous journey to your new bro haven relatively unscathed. After the backbreaking work of carrying all that stuff into the house, you're all set. Then you realize how empty the place still looks. Luckily, you're smart enough to use the Moving Bro [moving checklist](www.movingbro.com) to figure out what's missing and get it delivered directly to your front door. 
+So now you've got the majority of your stuff jammed into your new pad. Maybe you rented a monster uHaul truck, knocked over a fence post or two backing out of the driveway, but otherwise managed to make the perilous journey to your new bro haven relatively unscathed. After the backbreaking work of carrying all that stuff into the house, you're all set. Then you realize how empty the place still looks. Luckily, you're smart enough to use the Moving Bro [moving checklist](http://www.movingbro.com) to figure out what's missing and get it delivered directly to your front door. 
 
 However, there just might be a few extra things you still want. Maybe you found an impossibly cool leather couch with only a few unidentifiable stains on Craigslist for $50. Then you saw that table for sale whose dimensions and spring combine to make the most legendary beer pong table known to brokind. So now you found some vital additions for the house, but despite your ingenuity, can't figure a way to get the things in the good old Honda Civic. 
 
