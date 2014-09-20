@@ -6,7 +6,7 @@ description: > # this means to ignore newlines until "baseurl:"
   and advice for broexisting peacefully in your new pad.  
 #baseurl: "http://blog.movingbro.com/"
 #url: "http://blog.movingbro.com/" # the base hostname & protocol for your site
-twitter_username: daniel_bogart
+twitter_username: movingbro
 github_username:
 
 # Build settings
