@@ -1,0 +1,14 @@
+---
+layout: post
+title:  "What's Cookin' Good Lookin'?"
+date:   2014-09-24 9:00
+categories: moving-checklist product-reviews
+---
+
+Most people were taught about the food pyramid as children. Eat lots of the healthy foods down at the bottom, and just a little of the food that actually tastes good at the top. What the great people at the USDA didn't understand is that there remained room for improvement. They missed a critical element, possibly the most important element, of the food pyramid. This necessity could be a food group on it's own. It is said that in some cultures, this food is such a staple to their diet that they actually worship it as a deity and erect statues in its honor. 
+
+![Tapatio Food Pyramid](/images/foodpyramid.png)
+
+This food is hot sauce. In particular, it's [Tapatio](http://www.amazon.com/gp/product/B00H1Y3B04/ref=ox_sc_act_title_4?ie=UTF8&psc=1&smid=A3NTSZEDQ0ZV85) hot sauce. A few things to know about [Tapatio](http://www.amazon.com/gp/product/B00H1Y3B04/ref=ox_sc_act_title_4?ie=UTF8&psc=1&smid=A3NTSZEDQ0ZV85) for the uninitiated - it's a moderately spicy hot sauce available in most supermarkets and served in many Mexican restaurants. Its deliciously spicy yet slightly sweet flavor goes with nearly anything; the only seasoning I see more often used in our kitchen is salt. A few recommended dishes to try it on: tacos, pizza, noodles, and [Bloody Marys](http://www.tapatiohotsauce.com/recipes-beverages-bloody-mary.html). That's right, this stuff is so good you can eat it OR drink it. If you're feeling bold, throw it in your bath instead of bubble mix for a nice scented dip and a tingling pore cleansing sensation. 
+
+We chose [Tapatio](http://www.amazon.com/gp/product/B00H1Y3B04/ref=ox_sc_act_title_4?ie=UTF8&psc=1&smid=A3NTSZEDQ0ZV85) for the Moving Bro [moving checklist](http://www.movingbro.com) recommended pick under the General Food section because for sane households, it's a must. There was fierce debate among sauce experts and online reviewers as to the King of the hot sauce realm. [Sriracha](http://www.amazon.com/Huy-Fong-Sriracha-Chili-Sauce/dp/B00838FWPO/ref=sr_1_1?s=grocery&ie=UTF8&qid=1411574617&sr=1-1&keywords=sriracha), [Cholula](http://www.amazon.com/Cholula-Hot-Sauce-12-Pack/dp/B0081ZBDKW/ref=sr_1_1?ie=UTF8&qid=1411574600&sr=8-1&keywords=cholula), and [Tabasco](http://www.amazon.com/Tabasco-Original-Sauce-Pepper-Ounce/dp/B0004LZSYS/ref=sr_1_sc_1?s=grocery&ie=UTF8&qid=1411574628&sr=1-1-spell&keywords=tabasci) were all fierce competitors, but [Tapatio](http://www.amazon.com/gp/product/B00H1Y3B04/ref=ox_sc_act_title_4?ie=UTF8&psc=1&smid=A3NTSZEDQ0ZV85) shone through as the true winner. It combines unique flavor with versatile application, near universal appeal, and great value. The option we chose on Amazon includes three bottles for $2.49 + shipping, which comes out to less than $1.00 per bottle. So get cooking hombre.
