@@ -9,7 +9,7 @@ Since your life is not Zac Efron's in "Neighbors", chances are cops won't be tak
 
 **Step 1: Bake cookies**
 <br>
-That's right. Bake cookies. No one is too old or too manly to bake cookies. Bake that shit, bring it over to your neighbors to introduce yourself, and win their hearts faster than Lance won his last Tour de France. Cookies are the performance enhancing drugs of friendship.
+That's right. Bake cookies. No one is too old or too manly to bake cookies. Bake that shit, bring it over to your neighbors to introduce yourself, and win their hearts faster than Lance won the 1999 Tour de France. Cookies are the performance enhancing drugs of friendship.
 
 <div class="text-center">
 	<img src="/images/cookiemonster.gif" alt="Cookie Monster" />
